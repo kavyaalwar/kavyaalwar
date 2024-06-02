@@ -1,5 +1,5 @@
 # 💫 About Me:
-🫡 Myself Kavya Alwar. I’m a student studying at SVEC<br>🌱 I’m currently pursuing my computer science engineering<br>⚡ I would love to learn new technology.<br>💻 Exploring the vast world of technology<br>⚡ Fun fact: I'm Funny 😂
+🫡 Myself Kavya Alwar. I’m a student studying at SVEC (JNTUA)<br>🌱 I’m currently pursuing my computer science engineering<br>⚡ I would love to learn new technology.<br>💻 Exploring the vast world of technology<br>⚡ Fun fact: I'm Funny 😂
 
 
 ## 🌐 Socials:
